@@ -1,3 +1,2 @@
-# **人生就是一場旅行**
-#### **不妨用最粗糙的文字記錄這些**，**讓我們不悔如戲**!
-# ┴┴~(≧▽≦)/~┴┴
+# 禁止入內 Neniu eniro
+Via animo ne trapasas la translokiĝon kaj ne estas permesata enen. Se vi ne komprenas, vi ne povas kulpigi min. Vi povas akcepti tiujn malfortajn sugestojn, sed mi ne petos vin malforteco. Ne.
