@@ -1,2 +1,2 @@
-# 禁止入內 Neniu eniro
-Via animo ne trapasas la translokiĝon kaj ne estas permesata enen. Se vi ne komprenas, vi ne povas kulpigi min. Vi povas akcepti tiujn malfortajn sugestojn, sed mi ne petos vin malforteco. Ne.
+# 禁止入內
+### 隨時準備就緒，用簡陋的文字記錄偉大的思想。
