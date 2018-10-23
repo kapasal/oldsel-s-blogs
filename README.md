@@ -1,6 +1,6 @@
-# 禁止入內
-### 簡陋的思想，偉大的文字。
-###              ( ⚫︎ー⚫︎ )balalala~
+# NO ENTER IN 
+###  CHECK OUT YOUR REAL NAME
+###           ( ⚫︎ー⚫︎ )balalala~
 ### 　     ／　　      ＼
 ###      /　　    　      @  \
 ###    /　 /  　 　           ヽ \
@@ -9,4 +9,4 @@
 ### 　   卜−　　      ―イ
 ###    　 \　　/\　 /
 ###    　　 ︶　  ︶
-#### 記錄每一時刻
+#### some records 
